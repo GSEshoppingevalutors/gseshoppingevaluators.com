@@ -1,0 +1,1 @@
+# gseshoppingevaluators.com
